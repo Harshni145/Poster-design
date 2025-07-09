@@ -1,3 +1,3 @@
 # Poster-design
 Design
-[Uploading CAR POSTER.pdf…]()
+![Uploading CAR POSTER-01.jpg…]()
